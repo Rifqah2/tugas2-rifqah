@@ -1,0 +1,3 @@
+NAMA : RIFQAH. S
+NIM : D0223314
+Kelas : B 2023
